@@ -13,7 +13,7 @@ B.Tech in CSE || Programmer || Learner
 
 - 💬 Ask me about **Anything**
 
-- 📫 How to reach me **<a href="mailto:jakariahussain9001@gmail.com" target="_blank">Mmail Me</a>;**
+- 📫 How to reach me **<a href="mailto:taukirtanjed@gmail.com" target="_blank">Mail Me</a>;**
 
 - ⚡ Fun fact **I can provide you cookies for free to eat 🍪😂**
 
